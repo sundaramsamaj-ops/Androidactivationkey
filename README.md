@@ -1,0 +1,2 @@
+# Androidactivationkey
+Androidactivationkey SM
